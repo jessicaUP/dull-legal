@@ -1,4 +1,4 @@
-# Privacy Policy for Dull Blobs                            
+# Privacy Policy for Dull: Color-Mixing Game                            
                                                              
   Last updated: 2026-05-29                                   
                                                              
